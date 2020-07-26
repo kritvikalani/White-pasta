@@ -1,0 +1,12 @@
+**Ingredients needed to make the pasta**
+- 3/4 cup Penne/other Pasta
+- 4-5 cups of Water
+- Salt
+- 1/2 teaspoon oil
+- 1/4 cup chopped Broccoli
+- 1 teaspoon chopped Garlic
+- 1 1/2 tablespoons Maida
+- 1 1/2 cups of Milk
+- Salt to taste
+- Butter and Cheese
+- Pizza seasonings
